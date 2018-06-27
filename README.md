@@ -1,7 +1,8 @@
 # Moiras
 
-Todos aqui veremos como se aprende a utilizar un repositorio con GITHUB
+jkosnfgbusfidmhpfdhdf
 
-Este trabajo es para una tarea de FSW 
+hdfashdfshfdshdgsjhdgskj,iebmofgv
 
-PD: Marquitos te amo :3 <3
+
+afdshdfmhiodfnjhonfdi
